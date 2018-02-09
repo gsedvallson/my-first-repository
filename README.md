@@ -6,3 +6,5 @@ Men hörru, går ju bra det här
 Ellerrrrr?
 
 Ändrar lite från "annan dator"
+
+Men käften haha
